@@ -1,5 +1,5 @@
 
-<img src="undraw_environmental_study_skau.svg" heigtht="100pt" />
+<img src="undraw_environmental_study_skau.svg" style="height:125px;" />
 
 # Normale Globuli sind gefährlich! Doch es gibt Homöpoatische Abhilfe!
 
@@ -27,7 +27,7 @@
 - Frei von Miasmen aller Art, da diese sich nicht über das Internet übertragen lassen!
 - Keine Wartezeit! Keine langwierige Beratung!
 
-<img src="undraw_Mobile_application_mr4r.svg" heigtht="100pt" />
+<img src="undraw_Mobile_application_mr4r.svg" style="height:125px;" />
 
 # Dafür gibt es jetzt GloboCall!
 
@@ -49,7 +49,7 @@ Durch das Vorsingen der **aktiven Ingredientien** können wir die Schwingungen d
 
 GloboCall ist **beweisbar** und **garantiert** genau so wirksam wie schul-homöopatische Mittel. 
 
-<img src="undraw_imagination_ok71.svg" heigtht="100pt" />
+<img src="undraw_imagination_ok71.svg" style="height:125px;" />
 
 # Wobei kann GloboCall helfen?
 
