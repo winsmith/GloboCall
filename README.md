@@ -1,5 +1,5 @@
 
-<img src="undraw_environmental_study_skau.svg" />
+<img src="undraw_environmental_study_skau.svg" heigtht="100pt" />
 
 # Normale Globuli sind gefährlich! Doch es gibt Homöpoatische Abhilfe!
 
@@ -27,7 +27,7 @@
 - Frei von Miasmen aller Art, da diese sich nicht über das Internet übertragen lassen!
 - Keine Wartezeit! Keine langwierige Beratung!
 
-<img src="undraw_Mobile_application_mr4r.svg" />
+<img src="undraw_Mobile_application_mr4r.svg" heigtht="100pt" />
 
 # Dafür gibt es jetzt GloboCall!
 
@@ -49,10 +49,13 @@ Durch das Vorsingen der **aktiven Ingredientien** können wir die Schwingungen d
 
 GloboCall ist **beweisbar** und **garantiert** genau so wirksam wie schul-homöopatische Mittel. 
 
-<img src="undraw_imagination_ok71.svg" />
+<img src="undraw_imagination_ok71.svg" heigtht="100pt" />
 
 # Wobei kann GloboCall helfen?
 
 Ein GloboCall kann gegen vieles helfen, hier sind nur einige Beispiele:
 
-- **Eine Person hatte Angst vor Zurückweisung!** 
+- **Eine Person hatte eine mittelschwere Erkältung!** Schon wenige Tage nach dem GloboCall fühlte sich die Person besser und konnte im Verlauf von etwas mehr als einer Woche restlos genesen.
+- **Eine Person hatte eine saisonale Winterdepression!** Mit einigen GloboCalls, über die folgenden Monate verteilt, konnte die Person ihre Winterdepression vollständig heilen.
+- **Eine Person hatte Angst vor Zurückweisung!** Durch einen GloboCall konnte der Person die Angst schnell und nachhaltig genommen werden.
+- **Eine Person hatte Probleme mit seiner Leistung im Bett!** Mit Hilfe einiger GloboCalls konnte diese Person seine Libido und sein Durchhaltevermögen deutlich steigern. 
