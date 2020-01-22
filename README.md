@@ -3,7 +3,7 @@
 
 # Normale Globuli sind gefährlich! Doch es gibt Homöpoatische Abhilfe!
 
-- Es kann zur Erstverschlimmerung kommen und diese kann schlimme Schäden anrichten! 
+- Normale Globuli können zur Erstverschlimmerung führen und diese kann schlimme Schäden anrichten! 
 - Viele Globuli sind in ihrer Wirksamkeit nicht auf Ihren Körper abgestimmt.
 - Nicht auf Sie abgestimmte Globuli können zu stark oder zu schwach für Ihr System sein.
 - Globuli geben die energetischen Schwingungen ihrer Wirkstoffe ungefiltert weiter. Schadstoffe inklusive!
