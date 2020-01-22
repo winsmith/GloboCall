@@ -35,7 +35,7 @@
 
 Wir sehen uns mehrere passende homöopathische Mittel an, verinnerlichen diese, und rufen Sie dann an. 
 
-Durch das Vorsingen der **aktiven Ingredientien** können wir die Schwingungen der Heilkraft überragen ohne und Sie vor Zucker und anderen Schadstoffen schützen!
+Durch das Vorsingen der **aktiven Ingredientien** können wir die Schwingungen der Heilkraft übertragen, ohne dass Sie Nebenwirkungen oder Fehl-Orgoniten ausgesetzt sind! Und Sie vor Zucker und anderen Schadstoffen schützen!
 
 ***Garantiert* frei von Miasma**
 
