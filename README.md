@@ -1,5 +1,5 @@
 
-<img src="undraw_environmental_study_skau.svg" style="height:125px;" />
+<img src="undraw_environmental_study_skau.svg" style="height:225px; text-align: center;" />
 
 # Normale Globuli sind gefährlich! Doch es gibt Homöpoatische Abhilfe!
 
