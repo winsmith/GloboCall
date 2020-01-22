@@ -33,3 +33,13 @@ Wir sehen uns mehrere passende homöopathische Mittel an, verinnerlichen diese, 
 Durch das Vorsingen der **aktiven Ingredientien** können wir die Schwingungen der Heilkraft überragen ohne und Sie vor Zucker und anderen Schadstoffen schützen!
 
 ***Garantiert* frei von Miasma**
+
+# Probieren Sie es jetzt aus! 
+
+1. [Kontaktieren Sie den Autor via Paypal — **Klicken Sie hier**](https://www.paypal.me/DanielJilg/69.69?locale.x=de_DE)
+2. In der Paypal-Nachricht sollten Sie Ihre Symptome beschreiben und eine Telefonnummer oder Emailadresse hinterlassen.
+3. Sie erhalten vom Autor innerhalb weniger Tage einen Rückruf oder eine Email mit einer Audiodatei.
+
+# Funktioniert es Wirklich?
+
+Globocall ist **beweisbar** und **garantiert** genau so wirksam wie Schul-Homöopatische Mittel. 
