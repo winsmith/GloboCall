@@ -24,9 +24,9 @@
 - Frei von Miasmen aller Art, da diese sich nicht über das Internet übertragen lassen!
 - Keine Wartezeit! Keine langwierige Beratung!
 
-Dafür gibt es jetzt GloboCall!
+# Dafür gibt es jetzt GloboCall!
 
-**Sagen Sie uns ihre Symptome, und wir stellen Ihnen einen GlobuCall TM zu!** 
+**Sagen Sie uns ihre Symptome, und wir stellen Ihnen einen GloboCall TM zu!** 
 
 Wir sehen uns mehrere passende homöopathische Mittel an, verinnerlichen diese, und rufen Sie dann an. 
 
@@ -36,10 +36,14 @@ Durch das Vorsingen der **aktiven Ingredientien** können wir die Schwingungen d
 
 # Probieren Sie es jetzt aus! 
 
-1. [Kontaktieren Sie den Autor via Paypal — **Klicken Sie hier**](https://www.paypal.me/DanielJilg/69.69?locale.x=de_DE)
+1. [Kontaktieren und bezahlen Sie den Autor via Paypal — **Klicken Sie hier**](https://www.paypal.me/DanielJilg/69.69?locale.x=de_DE)
 2. In der Paypal-Nachricht sollten Sie Ihre Symptome beschreiben und eine Telefonnummer oder Emailadresse hinterlassen.
 3. Sie erhalten vom Autor innerhalb weniger Tage einen Rückruf oder eine Email mit einer Audiodatei.
 
 # Funktioniert es Wirklich?
 
-Globocall ist **beweisbar** und **garantiert** genau so wirksam wie Schul-Homöopatische Mittel. 
+GloboCall ist **beweisbar** und **garantiert** genau so wirksam wie schul-homöopatische Mittel. 
+
+# Wobei kann GloboCall helfen?
+
+Ein GloboCall kann gegen vieles helfen, hier sind nur einige Beispiele:
