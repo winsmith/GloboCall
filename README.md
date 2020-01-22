@@ -1,4 +1,4 @@
-# Globuli sind gefährlich!
+# Normale Globuli sind gefährlich! Doch es gibt Homöpoatische Abhilfe!
 
 - Es kann zur Erstverschlimmerung kommen und diese kann schlimme Schäden anrichten! 
 - Viele Globuli sind in ihrer Wirksamkeit nicht auf Ihren Körper abgestimmt.
