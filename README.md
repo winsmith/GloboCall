@@ -1,3 +1,5 @@
+<img src="undraw_Mobile_application_mr4r.svg">
+
 # Normale Globuli sind gefährlich! Doch es gibt Homöpoatische Abhilfe!
 
 - Es kann zur Erstverschlimmerung kommen und diese kann schlimme Schäden anrichten! 
@@ -47,3 +49,5 @@ GloboCall ist **beweisbar** und **garantiert** genau so wirksam wie schul-homöo
 # Wobei kann GloboCall helfen?
 
 Ein GloboCall kann gegen vieles helfen, hier sind nur einige Beispiele:
+
+- **Eine Person hatte Angst vor Zurückweisung!** 
