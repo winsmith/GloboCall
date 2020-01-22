@@ -26,4 +26,10 @@
 
 Dafür gibt es jetzt GloboCall!
 
-Sagen Sie uns ihre Symptome, und wir stellen Ihnen einen GlobuCall TM zu! Wir sehen uns mehrere passende homöopathische Mittel an, verinnerlichen diese, und rufen Sie dann an. Durch das Vorsingen der aktiven Ingredientien können wir die Schwingungen der Heilkraft überragen ohne Sie Zucker und anderen Schadstoffen auszusetzen!
+**Sagen Sie uns ihre Symptome, und wir stellen Ihnen einen GlobuCall TM zu!** 
+
+Wir sehen uns mehrere passende homöopathische Mittel an, verinnerlichen diese, und rufen Sie dann an. 
+
+Durch das Vorsingen der **aktiven Ingredientien** können wir die Schwingungen der Heilkraft überragen ohne und Sie vor Zucker und anderen Schadstoffen schützen!
+
+***Garantiert* frei von Miasma**
